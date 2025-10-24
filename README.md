@@ -10,3 +10,4 @@ A passionate Data Analytics:
 - 📫 How to reach me: ... santanubarai777@gmail.com
 - 😄 Pronouns: ... He/Him
 -->
+https://www.linkedin.com/in/santanu-barai-a99339221/
